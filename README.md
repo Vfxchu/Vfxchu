@@ -1,2 +1,2 @@
-- @Vichu 👽
+- @Vishnu 👽
 - hooman 🧖
